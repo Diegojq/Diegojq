@@ -1,8 +1,7 @@
 
 ![fondonetwork](https://github.com/user-attachments/assets/194a5720-75bf-4945-a322-1277f675d2c9)
 
-📫 Puedes contactarme a través de mi correo electrónico:  
-[dev.diegojimenez@gmail.com](dev.diegojimenez@gmail.com)
+📫 Puedes contactarme a través de mi correo electrónico: ➡️ [dev.diegojimenez@gmail.com](/)
 
 💼 **LinkedIn** ➡️ [https://www.linkedin.com/in/diegojq/](https://www.linkedin.com/in/diegojq/)
 
